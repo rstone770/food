@@ -4,13 +4,13 @@ Inspired(stolen?) from a random reddit thread.
 ## Ingredients
 * 2 cans of tuna (5-6oz/can dry weight)
 * 1/2 cup mayo
-* 2 Tbs red onion
-* 2 Tbs chopped pepper (jalapeno/poblano/ect)
-* 2 Tbs pickles (bread and butter/anything fancy)
-* 1/2 Tsp minced garlic
-* 1/2 Tsp Dijon mustard(other fancy works here)
-* 1/4 Tsp black pepper
-* 1/4 Tsp salt
+* 2 tbs red onion
+* 2 tbs chopped pepper (jalapeno/poblano/ect)
+* 2 tbs pickles (bread and butter/anything fancy)
+* 1/2 tsp minced garlic
+* 1/2 tsp Dijon mustard(other fancy works here)
+* 1/4 tsp black pepper
+* 1/4 tsp salt
 
 ## Instructions
 
