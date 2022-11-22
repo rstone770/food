@@ -1,4 +1,4 @@
 Food
 ====
 
-[Tuna Salad](/recipies/TunaSalad.md)
+[Tuna Salad](/recipes/TunaSalad.md)
