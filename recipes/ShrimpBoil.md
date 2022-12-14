@@ -16,7 +16,7 @@
 
 ## Instructions
 
-1. In a large pot combine 3 quarts of water, beer, lemon, onion, garlic, salt, pepper flakes, and the crawfish boil seasoning. Bring to boil.
+1. In a large pot combine 3 quarts(2800ml) of water, beer, lemon, onion, garlic, salt, pepper flakes, and the crawfish boil seasoning. Bring to boil.
 
 2. Add potatoes and boil for 10-12 minutes. Potatoes should be just tender.
 
@@ -24,8 +24,8 @@
 
 4. Add shrimp. Cook for 2-3 minutes, they should be pink and opaque. 
 
-5. Remove of heat and let soak for 10-15 minutes.
+5. Remove off heat and let soak for 10-15 minutes.
 
-6. Reserve 1 cup of brine and drain the boil.
+6. Reserve 1 cup of brine and drain boil.
 
-7. Whisk the butter into the brine reserve and pour over the remaining mixture. Stir and serve.
+7. Whisk butter into the brine reserve and pour over the remaining mixture. Stir and serve.
