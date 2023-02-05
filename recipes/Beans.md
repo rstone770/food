@@ -1,25 +1,23 @@
 # Beans
 
 ## Ingredients
-29oz can Pinto beans
-15oz can Black beans
-10oz can Rotel(green chilies and tomatoes) or green chilies
-8oz can corn
-1 can of chipotle in adobe sauce
-1 medium/small yellow onion
-2-3 cloves of garlic
-2-3 slices of bacon
-
-2 tbs tomato paste
-1 tbs dark soy sauce
-1 tbs lime juice
-1 tbs lemon juice
-1 tsp oregano
-1 tsp cumin
-1 tsp black pepper
-2 bay leaves
-
-Broth or water
+* 29oz can Pinto beans
+* 15oz can Black beans
+* 10oz can Rotel(green chilies and tomatoes) or green chilies
+* 8oz can corn
+* 1 can of chipotle in adobe sauce
+* 1 medium/small yellow onion
+* 2-3 cloves of garlic
+* 2-3 slices of bacon
+* 2 tbs tomato paste
+* 1 tbs dark soy sauce
+* 1 tbs lime juice
+* 1 tbs lemon juice
+* 1 tsp oregano
+* 1 tsp cumin
+* 1 tsp black pepper
+* 2 bay leaves
+* Broth or water
 
 ## Instructions
 
