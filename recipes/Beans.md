@@ -5,7 +5,7 @@
 * 15oz can Black beans
 * 10oz can Rotel(green chilies and tomatoes) or green chilies
 * 8oz can corn
-* 1 can of chipotle in adobe sauce
+* 1 can of chipotle in adobo sauce
 * 1 medium/small yellow onion
 * 2-3 cloves of garlic
 * 2-3 slices of bacon
