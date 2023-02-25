@@ -3,10 +3,10 @@ Your basic crumb cake with beer! This makes a great morning snack with jam and l
 
 ## Ingredients
 * 360g sifted flour
+* 12oz beer
 * 50g sugar
 * 15g baking Powder
-* 15g salt
-* 12oz beer
+* 10g salt
 * 1/4c butter
 
 ## Instructions
