@@ -3,11 +3,11 @@
 ## Ingredients
 * 2 lbs of shrimp peeled and deveined 
 * 1.5 lbs small red potatoes quartered
+* 1 lb smoked sausage, cut into 1" chunks
 * 4 ears of corn broken into 3-4 pieces each.
 * 6 cloves of garlic smashed
 * 1 lemon quartered
 * 1 onion peeled and cut into 4-8 pieces.
-* 1 lb smoked sausage, cut into 1" chunks
 * 1 bag of Zaraeain's Crawfish, Shrimp & Crab Boil in a Bag 
 * 1 beer of your choice. (ambers work best)
 * 4 tbs of kosher salt
