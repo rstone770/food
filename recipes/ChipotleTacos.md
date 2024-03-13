@@ -5,7 +5,7 @@
 * 2 lb __boneless skinless chicken thighs__
 * 1/4 cup __maple syrup__
 * 2 Tbs __dark soy sauce__
-* 2 Tbs __lemon juice__
+* 2 Tbs __lime juice__
 * 1 Tbs __unsalted butter__
 * 1 1/2 tsp __cummin__
 * 1 tsp __oregano__
